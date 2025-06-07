@@ -22,7 +22,7 @@ all my info lies on my strawpage ![image](https://github.com/user-attachments/as
 ![image](https://github.com/user-attachments/assets/c8fe7d51-9227-4f6d-b6a4-9124174e7f71) ![image](https://github.com/user-attachments/assets/a9cbbf02-9ac6-4414-a829-a1da62b27a75) ![image](https://github.com/user-attachments/assets/ad6bd2f1-d61a-4bfa-bd66-73acd7031382) ![image](https://github.com/user-attachments/assets/b8a36260-c25f-4b2a-a9fb-b56ccdd1c76d)
 
 
-![image](https://github.com/user-attachments/assets/ffbeb6ce-c40e-434b-8ac5-a0abe4e8bc32) ![image](https://github.com/user-attachments/assets/db57fce1-921d-4e13-befd-e0822c158ede) ![image](https://github.com/user-attachments/assets/c57b9c8e-1cd3-41f5-987a-7f216e6a8dd9) ![image](https://github.com/user-attachments/assets/0808c03b-1150-4d49-b08e-9861508799f7)
+![wii](https://github.com/user-attachments/assets/2e4dccde-ac40-47bd-8dcc-9fa8be31a864) ![image](https://github.com/user-attachments/assets/db57fce1-921d-4e13-befd-e0822c158ede) ![image](https://github.com/user-attachments/assets/c57b9c8e-1cd3-41f5-987a-7f216e6a8dd9) ![image](https://github.com/user-attachments/assets/0808c03b-1150-4d49-b08e-9861508799f7)
 
 
 ![image](https://github.com/user-attachments/assets/677e9681-d457-4457-8412-1384ffed35d6) ![image](https://github.com/user-attachments/assets/9f18dbdd-c0d9-459d-920b-6539e319e7ca) ![image](https://github.com/user-attachments/assets/89e79f23-e5ba-4330-b120-b776db116146) 
