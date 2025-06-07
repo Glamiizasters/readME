@@ -25,7 +25,8 @@ all my info lies on my strawpage ![image](https://github.com/user-attachments/as
 ![wii](https://github.com/user-attachments/assets/2e4dccde-ac40-47bd-8dcc-9fa8be31a864) ![image](https://github.com/user-attachments/assets/db57fce1-921d-4e13-befd-e0822c158ede) ![image](https://github.com/user-attachments/assets/c57b9c8e-1cd3-41f5-987a-7f216e6a8dd9) ![image](https://github.com/user-attachments/assets/0808c03b-1150-4d49-b08e-9861508799f7)
 
 
-![ilovetoeatstamps](https://github.com/user-attachments/assets/f4f7f16b-3dd2-4a40-b73c-cd9dd94229a2) ![image](https://github.com/user-attachments/assets/9f18dbdd-c0d9-459d-920b-6539e319e7ca) ![image](https://github.com/user-attachments/assets/89e79f23-e5ba-4330-b120-b776db116146) 
+![ilovetoeatstamps](https://github.com/user-attachments/assets/f4f7f16b-3dd2-4a40-b73c-cd9dd94229a2) ![image](https://github.com/user-attachments/assets/9f18dbdd-c0d9-459d-920b-6539e319e7ca) ![typos](https://github.com/user-attachments/assets/4dc2038c-ebd3-4197-8463-5eb50b5e83fb)
+
 
 
 
