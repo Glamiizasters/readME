@@ -19,13 +19,15 @@ all my info lies on my strawpage ![image](https://github.com/user-attachments/as
 
 ![image](https://github.com/user-attachments/assets/d99d6165-d78d-4eec-b596-a21c76bf8dfe) ![image](https://github.com/user-attachments/assets/887251c4-83ed-4efd-9198-0dc6d02fdb67) ![image](https://github.com/user-attachments/assets/0e4bd096-6308-4fe9-b119-b9634a39a0d4) ![image](https://github.com/user-attachments/assets/d795e07d-9f0c-4e8a-a768-4511a0ac11a4)
 
-![image](https://github.com/user-attachments/assets/c8fe7d51-9227-4f6d-b6a4-9124174e7f71) ![image](https://github.com/user-attachments/assets/a9cbbf02-9ac6-4414-a829-a1da62b27a75) ![image](https://github.com/user-attachments/assets/ad6bd2f1-d61a-4bfa-bd66-73acd7031382) ![image](https://github.com/user-attachments/assets/b8a36260-c25f-4b2a-a9fb-b56ccdd1c76d)
+![image](https://github.com/user-attachments/assets/c8fe7d51-9227-4f6d-b6a4-9124174e7f71) ![image](https://github.com/user-attachments/assets/a9cbbf02-9ac6-4414-a829-a1da62b27a75) ![image](https://github.com/user-attachments/assets/ad6bd2f1-d61a-4bfa-bd66-73acd7031382) ![wiiu](https://github.com/user-attachments/assets/1c6eb7f4-d379-4648-8773-9e952b049ccc)
+
 
 
 ![wii](https://github.com/user-attachments/assets/2e4dccde-ac40-47bd-8dcc-9fa8be31a864) ![image](https://github.com/user-attachments/assets/db57fce1-921d-4e13-befd-e0822c158ede) ![image](https://github.com/user-attachments/assets/c57b9c8e-1cd3-41f5-987a-7f216e6a8dd9) ![image](https://github.com/user-attachments/assets/0808c03b-1150-4d49-b08e-9861508799f7)
 
 
-![ilovetoeatstamps](https://github.com/user-attachments/assets/f4f7f16b-3dd2-4a40-b73c-cd9dd94229a2) ![image](https://github.com/user-attachments/assets/9f18dbdd-c0d9-459d-920b-6539e319e7ca) ![typos](https://github.com/user-attachments/assets/4dc2038c-ebd3-4197-8463-5eb50b5e83fb)
+![ilovetoeatstamps](https://github.com/user-attachments/assets/f4f7f16b-3dd2-4a40-b73c-cd9dd94229a2) ![image](https://github.com/user-attachments/assets/9f18dbdd-c0d9-459d-920b-6539e319e7ca) ![typos](https://github.com/user-attachments/assets/4dc2038c-ebd3-4197-8463-5eb50b5e83fb) ![image](https://github.com/user-attachments/assets/4e8c7896-bb3e-42f0-ad9b-22482deaae87)
+
 
 
 
