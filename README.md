@@ -15,7 +15,7 @@ all my info lies on my strawpage
 
 ![image](https://github.com/user-attachments/assets/b42d2e59-16dc-4ca2-b674-502891d06a1c) 
 
-![image](https://github.com/user-attachments/assets/d99d6165-d78d-4eec-b596-a21c76bf8dfe) ![image](https://github.com/user-attachments/assets/887251c4-83ed-4efd-9198-0dc6d02fdb67) ![image](https://github.com/user-attachments/assets/0e4bd096-6308-4fe9-b119-b9634a39a0d4)
+![image](https://github.com/user-attachments/assets/d99d6165-d78d-4eec-b596-a21c76bf8dfe) ![image](https://github.com/user-attachments/assets/887251c4-83ed-4efd-9198-0dc6d02fdb67) ![image](https://github.com/user-attachments/assets/0e4bd096-6308-4fe9-b119-b9634a39a0d4) ![image](https://github.com/user-attachments/assets/d795e07d-9f0c-4e8a-a768-4511a0ac11a4)
 
 ![image](https://github.com/user-attachments/assets/c8fe7d51-9227-4f6d-b6a4-9124174e7f71) ![image](https://github.com/user-attachments/assets/a9cbbf02-9ac6-4414-a829-a1da62b27a75) ![image](https://github.com/user-attachments/assets/ad6bd2f1-d61a-4bfa-bd66-73acd7031382)
 
