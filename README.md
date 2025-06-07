@@ -1,5 +1,6 @@
 # blinkies dump of doom and misery <3
-all my info lies on my strawpage 
+all my info lies on my strawpage ![image](https://github.com/user-attachments/assets/34959d35-2bd5-42e6-a802-fddac41ec399)
+
 
 ![0079-nonbinary](https://github.com/user-attachments/assets/874df6ca-f128-4b99-84c2-8cf8358cded6)
 
